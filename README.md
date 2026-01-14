@@ -50,7 +50,7 @@ Johnson Song:
 
 Jiacan Sun:
 
-Shannon Tanoto:
+Shannon Tanoto: My name is Shannon.
 
 Nevin Tsui:
 
